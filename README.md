@@ -1,5 +1,5 @@
 # beny-blackmarket
-[PREVIEW](https://streamable.com/o0jpg6) 
+[PREVIEW](https://youtu.be/eELRyGSSmKY) 
 
 **Skrypt wzrowany na fivecity 1.0**
 
